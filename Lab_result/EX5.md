@@ -1,0 +1,2 @@
+![ex 10 5 2](https://github.com/65030034/03376836-OOP-2566-Lab-10/assets/144875017/f582c9e5-9b8b-4798-a744-046f931a3d76)
+![ex 10 5 1](https://github.com/65030034/03376836-OOP-2566-Lab-10/assets/144875017/01a389fd-9a2d-4bc7-a944-bdc22a7283f1)
